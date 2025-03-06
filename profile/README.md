@@ -11,7 +11,7 @@
 
 <p>Preserving food at home has never been easier with an <strong>electric pressure cooker for canning</strong>. These modern appliances combine convenience, safety, and efficiency, making them a great choice for those who want to can vegetables, meats, and other foods without the hassle of traditional stovetop canners.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4itnl96)
+[**✅ Buy Now at Amazon**](https://amzn.to/4itnl96)
 
 <h2>Why Choose an Electric Pressure Cooker for Canning?</h2>
 
@@ -27,7 +27,7 @@
     <li><strong>Energy-Efficient</strong>: Uses less energy than traditional stovetop canners.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/4itnl96)
+[**✅ Buy Now at Amazon**](https://amzn.to/4itnl96)
 
 <h2>Pros & Cons of Electric Pressure Cookers for Canning</h2>
 
